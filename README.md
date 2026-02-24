@@ -1,4 +1,4 @@
-# Hi there! I'm [Your Name] 👋
+# Hi there! I'm Ashley Anochiri 👋
 
 ### 🚀 Front-End Developer | Visual Creator | Athlete in Training
 
